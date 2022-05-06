@@ -5,7 +5,7 @@
 <p>
         <a href="https://dbktw.duboku.vip/vodplay/2119-1-205.html"><img src="https://s3.bmp.ovh/imgs/2022/04/29/45740016462a5373.jpg" width=31% alt="斗罗大陆"></a>
         &nbsp;&nbsp;&nbsp;
-        <a href="https://dbktw.duboku.vip/vodplay/2118-1-56.html"><img src="https://s3.bmp.ovh/imgs/2022/04/29/f6294cc290391cdf.jpg" width=31% alt="完美世界"></a>
+        <a href="https://dbktw.duboku.vip/vodplay/2118-1-57.html"><img src="https://s3.bmp.ovh/imgs/2022/04/29/f6294cc290391cdf.jpg" width=31% alt="完美世界"></a>
         &nbsp;&nbsp;&nbsp;
         <a href="https://dbktw.duboku.vip/vodplay/2810-1-1.html"><img src="https://s3.bmp.ovh/imgs/2022/04/29/a6bb7bbbf5d78135.jpg" width=31% alt="神印王座" ></a>
     </p>
